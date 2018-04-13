@@ -1,1 +1,2 @@
 # Rampage-ready-for-Cinema
+Finally after a long time Rampage is delivered to the cinema and first show is already started. Rampage is premiered to the cinema and everyone ready to <a href="http://www.rampage2018movie.com/">watch Rampage Full movie</a> with their friends and family. Hollywood director has big expectations from the movie. Warnor bros spend $120 million on the movie. They all are expected for a big box office collection from the movie. But movie will have to fight against two movies quite place and truth or dare. 
